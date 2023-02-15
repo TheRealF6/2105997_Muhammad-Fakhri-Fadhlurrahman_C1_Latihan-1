@@ -1,2 +1,2 @@
-# 2105997_Muhammad-Fakhri-Fadhlurrahman_C1_Latihan-1
+# LATIHAN1DPBO2023
 Latihan 1 DPBO
